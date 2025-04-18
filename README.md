@@ -13,7 +13,7 @@
 
 - 📝 I rarely write articles on [https://dev.to/b0ym3r](https://dev.to/b0ym3r)
 
-- 📫 How to reach me: **Check my social profiles, email is sinamnene@gmail.comene**
+- 📫 How to reach me: **Check my social profiles, email is sinamnene@gmail.com**
 
 - ⚡ Fun fact **I like gaming, playing football(soccer), a bit of basketball, chess, music and learning new languages**
 
